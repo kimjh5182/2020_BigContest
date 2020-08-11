@@ -1,0 +1,1 @@
+[https://blog.ncsoft.com/%ec%95%bc%ea%b5%ac-%eb%8d%b0%ec%9d%b4%ed%84%b0-%eb%b6%84%ec%84%9d-17-%ed%94%bc%ed%83%80%ea%b3%a0%eb%a6%ac%ec%96%b8-%ea%b8%b0%eb%8c%80-%ec%8a%b9%eb%a5%a0-part-1/](https://blog.ncsoft.com/야구-데이터-분석-17-피타고리언-기대-승률-part-1/)
